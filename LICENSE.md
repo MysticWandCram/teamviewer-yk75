@@ -1,4 +1,4 @@
-# 
+# best VMware Workstation para PC scripts é o melhor VMware Workstation para PC scripts com importacao e exportacao e clonagem de VM. Seguro, confiável e otimizado para máximo
 
 
 
